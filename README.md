@@ -1,4 +1,4 @@
-# **Animation!**
+# **Animation**
 
 > not fancy <br>
 > 
